@@ -40,7 +40,7 @@ How to Use the Code: Enter PREPLYFREE at checkout to unlock a free 30-minute tri
 
 [![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/cda15b6c-b493-4c73-93a0-40853a0477bd)](https://preply.sjv.io/c/6147536/1987575/24422)
 
-## How to Redeem Preply Promo Codes?
+## How to Redeem Preply Coupon?
 
 Redeeming a Preply promo code is easy and quick. Here’s how to use your discount:
 
